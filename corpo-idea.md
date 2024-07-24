@@ -8,6 +8,7 @@ People, please sdd your ideas below.
 
 - fruits evert Thursday
 - frutis every day
+- bear
 - pizza Firdays
 - gaming room
 
