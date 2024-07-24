@@ -1,6 +1,6 @@
 # Ideas to make corpo live better
 
-People, please sdd your ideas below.
+People, please add your ideas below.
 Please not, that not all wishes will be fullfiled.
 
 ## Procedures
@@ -8,6 +8,14 @@ Please not, that not all wishes will be fullfiled.
 
 ## Benefits
 
+- fruits evert Thursday
+- frutis every day
+- bear
+- pizza Firdays
+- gaming room
+- family nenefits
+    - insurence
+    - multisport
 
 ## Equipment
 
