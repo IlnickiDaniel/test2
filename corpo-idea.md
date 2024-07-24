@@ -1,5 +1,6 @@
 # Ideas to make corpo live better
 
+People, please sdd your ideas below.
 
 ## Procedures
 
@@ -11,5 +12,7 @@
 
 - monitors
 - phones
+- backpack
+- gaming computers
 
 ## Money
