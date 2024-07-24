@@ -19,5 +19,9 @@ Please not, that not all wishes will be fullfiled.
 
 ## Equipment
 
+- monitors
+- phones
+- backpack
+- gaming computers
 
 ## Money
