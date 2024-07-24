@@ -10,6 +10,8 @@ People, please sdd your ideas below.
 - frutis every day
 - pizza Firdays
 - gaming room
+- family nenefits
+    - insurence
 
 ## Equipment
 
