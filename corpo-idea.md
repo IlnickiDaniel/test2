@@ -11,6 +11,9 @@ People, please sdd your ideas below.
 - bear
 - pizza Firdays
 - gaming room
+- family nenefits
+    - insurence
+    - multisport
 
 ## Equipment
 
