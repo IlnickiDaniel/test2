@@ -9,6 +9,7 @@ People, please sdd your ideas below.
 - fruits evert Thursday
 - frutis every day
 - pizza Firdays
+- gaming room
 
 ## Equipment
 
