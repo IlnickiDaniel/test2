@@ -1,7 +1,7 @@
 # Ideas to make corpo live better
 
 People, please add your ideas below.
-Please not, that not all wishes will be fullfiled.
+We don't have money !
 
 ## Procedures
 
